@@ -1,4 +1,4 @@
-Privacy Policy for Solar Invert
+Privacy Policy for Solar Invert :
 Effective Date: September 25, 2026
 Solar Invert ("we", "our", or "us") is committed to protecting your privacy. This Privacy Policy explains how our mobile application handles your information.
 1. Information Collection and Use
